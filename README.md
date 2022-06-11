@@ -1,0 +1,2 @@
+# Small
+Kichik loyihacha
